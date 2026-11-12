@@ -1,4 +1,4 @@
-# Sweet Home 🏢👹
+# Sweet Home 
 
 > A Korean horror-thriller where humanity's darkest desires become literal monsters.
 
